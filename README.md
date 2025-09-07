@@ -5,7 +5,7 @@ I'm a profesional business developer with a customer-oriented mindset and techni
 I'm looking to collaborate in any data project to broaden my network<br>Looking for my first professional opportunity in the IT world.<br>
 Currently learning MLOps practices and starting with Japanese language<br>
 Ask me about my professional trajectory around the world.<br>
-A dream I'm perssuing is to live in Japan to soak myself with their culture, while upgrading my career in data science.
+A dream I'm perssuing is to live in Japan to soak myself with their culture, while leveling up my career in data science.
 
 
 ## 🌐 Socials:
